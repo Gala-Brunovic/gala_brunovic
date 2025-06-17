@@ -1,1 +1,0 @@
-# gala_brunovic
